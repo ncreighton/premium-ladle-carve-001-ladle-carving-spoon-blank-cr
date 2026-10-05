@@ -1,0 +1,2 @@
+# premium-ladle-carve-001-ladle-carving-spoon-blank-cr
+Tired of scattered sketches, lost measurements, and forgotten design ideas for your next spoon blank? The Ladle Carving &amp; Spoon Blank Craft Hub turns your Notion workspace into a command center for every project, from rough blank to finished ladle.  This hub eliminates the chaos of managing multiple carving projects, wood inventory, and tool mainte
